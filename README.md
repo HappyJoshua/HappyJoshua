@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HappyJoshua but I go by Edwardo
+- 👀 I’m interested in death
+- 🌱 I’m currently learning privatized breathing
+- 💞️ I’m looking to collaborate on your inevitable death
+- 📫 How to reach me, don't.
